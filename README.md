@@ -2,6 +2,8 @@
 
 These are a few of my favorite things:
 
+Hello Partner
+
 - Raindrops on roses
 - Whiskers on puppies
 - Bright copper kettles
